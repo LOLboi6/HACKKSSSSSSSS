@@ -1,2 +1,0 @@
-# HACKKSSSSSSSS
-blooket hacks
